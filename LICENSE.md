@@ -1,4 +1,4 @@
-# 
+# NordPass for macOS instant Plugin - ransomware-shield and secure-browsing is the best NordPass for macOS plugin, featuring ransomware-shield and secure-browsing. Secure,
 
 
 
